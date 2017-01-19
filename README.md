@@ -3,11 +3,14 @@
 ## Create my portfolio
 
 ## Read 24 books (0/24)
-1. 
+1. Casual Vacancy by JK Rowling - reading
+2. The Restaurant at the End of the Universe by Douglas Adams - reading
+3. Game Start by Thais Weiller - reading
+4. The Swallow's Tower by Andrzej Sapkowski - reading
+5. Storm of Swords by George RR Martin - reading
 -------------------
 
 ## Finish all Zelda Series (0/16)
-
 1. Skyward Sword
 2. The Minish Cap
 3. Four Swords
@@ -23,14 +26,16 @@
 13. Four Swords Adventure
 14. Wind Waker
 15. Phantom Hourglass - finished
-16. Spirit Tracks *playing
+16. Spirit Tracks - playing
 
 -------------------
 
 ## Other Games 
-1. Assassin's Creed *playing
+1. Assassin's Creed - playing
 2. Dear Esther - finished
-
+3. Unravel - playing
+4. Professor Layton and the Curious Village - playing
+5. Mighty Switch Force - playing
 
 -------------------
 
