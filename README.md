@@ -10,7 +10,7 @@
 5. Storm of Swords by George RR Martin - reading
 -------------------
 
-## Finish all Zelda Series (0/16)
+## Finish all Zelda Series (2/16)
 1. Skyward Sword
 2. The Minish Cap
 3. Four Swords
