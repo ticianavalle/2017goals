@@ -2,12 +2,13 @@
 
 ## Create my portfolio
 
-## Read 24 books (0/24)
+## Read 24 books (1/24)
 1. Casual Vacancy by JK Rowling - reading
 2. The Restaurant at the End of the Universe by Douglas Adams - reading
 3. Game Start by Thais Weiller - reading
 4. The Swallow's Tower by Andrzej Sapkowski - reading
 5. Storm of Swords by George RR Martin - reading
+6. The Beast Within: A Tale of Beauty's Prince by Serena Valentino
 
 -------------------
 
@@ -31,12 +32,13 @@
 
 -------------------
 
-## Other Games 
-1. Assassin's Creed - playing
+## Other Games (2/)
+1. Assassin's Creed - finished
 2. Dear Esther - finished
 3. Unravel - playing
 4. Professor Layton and the Curious Village - playing
 5. Mighty Switch Force - playing
+6. Assassin's Creed II - playing
 
 -------------------
 
