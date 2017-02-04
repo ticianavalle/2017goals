@@ -8,7 +8,7 @@
 3. Game Start by Thais Weiller - reading
 4. The Swallow's Tower by Andrzej Sapkowski - reading
 5. Storm of Swords by George RR Martin - reading
-6. The Beast Within: A Tale of Beauty's Prince by Serena Valentino
+6. The Beast Within: A Tale of Beauty's Prince by Serena Valentino - OK
 
 -------------------
 
