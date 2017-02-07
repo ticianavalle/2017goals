@@ -32,13 +32,15 @@
 
 -------------------
 
-## Other Games (2/)
+## Other Games (3)
 1. Assassin's Creed - finished
 2. Dear Esther - finished
 3. Unravel - playing
 4. Professor Layton and the Curious Village - playing
 5. Mighty Switch Force - playing
-6. Assassin's Creed II - playing
+6. Assassin's Creed II - finished
+7. Assassin's Creed Brotherhood - playing
+8. Assassin's Creed Revelations
 
 -------------------
 
