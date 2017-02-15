@@ -39,8 +39,9 @@
 4. Professor Layton and the Curious Village - playing
 5. Mighty Switch Force - playing
 6. Assassin's Creed II - finished
-7. Assassin's Creed Brotherhood - playing
+7. Assassin's Creed Brotherhood
 8. Assassin's Creed Revelations
+9. Alan Wake - playing
 
 -------------------
 
@@ -49,7 +50,7 @@
 
 -------------------
 
-## Watch all Oscar 2017 nominees (2/9)
+## Watch all Oscar 2017 nominees (3/9)
 1. A Chegada - OK
 2. Até o Último Homem
 3. Estrelas Além do Tempo
@@ -58,5 +59,5 @@
 6. Um Limite Entre Nós
 7. A Qualquer Custo
 8. La La Land: Cantando Estações - OK
-9. Manchester à Beira-Mar
+9. Manchester à Beira-Mar - OK
 
