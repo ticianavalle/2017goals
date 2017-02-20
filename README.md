@@ -43,6 +43,7 @@
 7. Assassin's Creed Brotherhood
 8. Assassin's Creed Revelations
 9. Alan Wake - finished
+10. Red Dead Redemption - playing
 
 -------------------
 
