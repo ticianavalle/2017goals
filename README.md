@@ -9,6 +9,7 @@
 4. The Swallow's Tower by Andrzej Sapkowski - reading
 5. Storm of Swords by George RR Martin - reading
 6. The Beast Within: A Tale of Beauty's Prince by Serena Valentino - OK
+7. Fairest of All: A Tale of the Wicked Queen by Serena Valentino - reading
 
 -------------------
 
@@ -32,7 +33,7 @@
 
 -------------------
 
-## Other Games (3)
+## Other Games (4)
 1. Assassin's Creed - finished
 2. Dear Esther - finished
 3. Unravel - playing
@@ -41,7 +42,7 @@
 6. Assassin's Creed II - finished
 7. Assassin's Creed Brotherhood
 8. Assassin's Creed Revelations
-9. Alan Wake - playing
+9. Alan Wake - finished
 
 -------------------
 
@@ -50,10 +51,10 @@
 
 -------------------
 
-## Watch all Oscar 2017 nominees (3/9)
+## Watch all Oscar 2017 nominees (4/9)
 1. A Chegada - OK
 2. Até o Último Homem
-3. Estrelas Além do Tempo
+3. Estrelas Além do Tempo - OK
 4. Lion: Uma Jornada para Casa
 5. Moonlight: Sob a Luz do Luar
 6. Um Limite Entre Nós
