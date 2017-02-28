@@ -25,11 +25,11 @@
 9. The Legend of Zelda
 10. Adventure of Link
 11. Majora's Mask
-12. Twilight Princess
+12. Twilight Princess - playing
 13. Four Swords Adventure
 14. Wind Waker
 15. Phantom Hourglass - finished
-16. Spirit Tracks - playing
+16. Spirit Tracks - finished
 
 -------------------
 
