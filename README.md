@@ -9,7 +9,7 @@
 4. The Swallow's Tower by Andrzej Sapkowski - reading
 5. Storm of Swords by George RR Martin - reading
 6. The Beast Within: A Tale of Beauty's Prince by Serena Valentino - OK
-7. Fairest of All: A Tale of the Wicked Queen by Serena Valentino - reading
+7. Fairest of All: A Tale of the Wicked Queen by Serena Valentino - OK
 
 -------------------
 
