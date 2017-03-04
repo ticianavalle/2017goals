@@ -2,7 +2,7 @@
 
 ## Create my portfolio
 
-## Read 24 books (1/24)
+## Read 24 books (2/24)
 1. Casual Vacancy by JK Rowling - reading
 2. The Restaurant at the End of the Universe by Douglas Adams - reading
 3. Game Start by Thais Weiller - reading
@@ -13,7 +13,7 @@
 
 -------------------
 
-## Finish all Zelda Series (2/16)
+## Finish all Zelda Series (2/17)
 1. Skyward Sword
 2. The Minish Cap
 3. Four Swords
@@ -30,6 +30,7 @@
 14. Wind Waker
 15. Phantom Hourglass - finished
 16. Spirit Tracks - finished
+17. Breath of the Wild
 
 -------------------
 
