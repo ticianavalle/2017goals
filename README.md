@@ -22,7 +22,7 @@
 6. Oracle of Ages/Seasons
 7. Link's Awakening
 8. A Link Between Words
-9. The Legend of Zelda
+9. The Legend of Zelda - playing
 10. Adventure of Link
 11. Majora's Mask
 12. Twilight Princess - playing
@@ -30,7 +30,7 @@
 14. Wind Waker
 15. Phantom Hourglass - finished
 16. Spirit Tracks - finished
-17. Breath of the Wild
+17. Breath of the Wild - playing
 
 -------------------
 
