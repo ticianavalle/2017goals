@@ -13,7 +13,7 @@
 
 -------------------
 
-## Finish all Zelda Series (2/17)
+## Finish all Zelda Series (3/19)
 1. Skyward Sword
 2. The Minish Cap
 3. Four Swords
@@ -31,6 +31,9 @@
 15. Phantom Hourglass - finished
 16. Spirit Tracks - finished
 17. Breath of the Wild - playing
+18. Triforce Heroes
+19. Links Crossbow Training
+19. Hyrule Warriords
 
 -------------------
 
