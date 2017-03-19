@@ -19,21 +19,22 @@
 3. Four Swords
 4. Ocarina of Time - finished
 5. A Link to the Past
-6. Oracle of Ages/Seasons
-7. Link's Awakening
-8. A Link Between Words
-9. The Legend of Zelda - playing
-10. Adventure of Link
-11. Majora's Mask
-12. Twilight Princess - playing
-13. Four Swords Adventure
-14. Wind Waker
-15. Phantom Hourglass - finished
-16. Spirit Tracks - finished
-17. Breath of the Wild - playing
-18. Triforce Heroes
-19. Links Crossbow Training
-19. Hyrule Warriords
+6. Oracle of Ages
+6. Oracle of Seasons
+8. Link's Awakening
+9. A Link Between Words
+10. The Legend of Zelda - finished
+11. Adventure of Link
+12. Majora's Mask
+13. Twilight Princess - playing
+14. Four Swords Adventure
+15. Wind Waker
+16. Phantom Hourglass - finished
+17. Spirit Tracks - finished
+18. Breath of the Wild - playing
+19. Triforce Heroes
+20. Links Crossbow Training
+21. Hyrule Warriors
 
 -------------------
 
