@@ -2,7 +2,7 @@
 
 ## Create my portfolio
 
-## Read 24 books (2/24)
+## Read 24 books (4/24)
 1. Casual Vacancy by JK Rowling - reading
 2. The Restaurant at the End of the Universe by Douglas Adams - reading
 3. Game Start by Thais Weiller - reading
