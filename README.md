@@ -6,7 +6,7 @@
 1. Casual Vacancy by JK Rowling - reading
 2. The Restaurant at the End of the Universe by Douglas Adams - reading
 3. Game Start by Thais Weiller - reading
-4. The Swallow's Tower by Andrzej Sapkowski - reading
+4. The Swallow's Tower by Andrzej Sapkowski - OK
 5. Storm of Swords by George RR Martin - OK
 6. The Beast Within: A Tale of Beauty's Prince by Serena Valentino - OK
 7. Fairest of All: A Tale of the Wicked Queen by Serena Valentino - OK
@@ -23,7 +23,7 @@
 6. Oracle of Seasons
 8. Link's Awakening
 9. A Link Between Words
-10. The Legend of Zelda - finished
+10. The Legend of Zelda - playing
 11. Adventure of Link
 12. Majora's Mask
 13. Twilight Princess - playing
