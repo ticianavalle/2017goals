@@ -52,8 +52,9 @@
 
 -------------------
 
-## Write an article
-1. 
+## Write movies/games critics ()
+1. http://playerselect.com.br/critica-a-bela-e-a-fera/
+2.
 
 -------------------
 
