@@ -2,9 +2,9 @@
 
 ## Create my portfolio
 
-## Read 24 books (4/24)
+## Read 24 books (5/24)
 1. Casual Vacancy by JK Rowling - reading
-2. The Restaurant at the End of the Universe by Douglas Adams - reading
+2. The Restaurant at the End of the Universe by Douglas Adams - OK
 3. Game Start by Thais Weiller - reading
 4. The Swallow's Tower by Andrzej Sapkowski - OK
 5. Storm of Swords by George RR Martin - OK
@@ -57,7 +57,7 @@
 
 -------------------
 
-## Watch all Oscar 2017 nominees (4/9)
+## Watch all Oscar 2017 nominees (6/9)
 1. A Chegada - OK
 2. Até o Último Homem
 3. Estrelas Além do Tempo - OK
