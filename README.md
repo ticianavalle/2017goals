@@ -2,14 +2,17 @@
 
 ## Create my portfolio
 
-## Read 24 books (5/24)
-1. Casual Vacancy by JK Rowling - reading
+## Read 24 books (7/24)
+1. Casual Vacancy by JK Rowling - OK
 2. The Restaurant at the End of the Universe by Douglas Adams - OK
 3. Game Start by Thais Weiller - reading
 4. The Swallow's Tower by Andrzej Sapkowski - OK
 5. Storm of Swords by George RR Martin - OK
 6. The Beast Within: A Tale of Beauty's Prince by Serena Valentino - OK
 7. Fairest of All: A Tale of the Wicked Queen by Serena Valentino - OK
+8. Life, the universe and everything by Douglas Adams - OK
+9. Feast of Crows by George RR Martin - reading
+10. Eve by William P. Young - reading
 
 -------------------
 
