@@ -12,7 +12,8 @@
 7. Fairest of All: A Tale of the Wicked Queen by Serena Valentino - OK
 8. Life, the universe and everything by Douglas Adams - OK
 9. Feast of Crows by George RR Martin - reading
-10. Eve by William P. Young - reading
+10. Eve by William P. Young - OK
+11. So long and thanks for all the fish! by Douglas Adams - reading
 
 -------------------
 
@@ -52,12 +53,14 @@
 8. Assassin's Creed Revelations
 9. Alan Wake - finished
 10. Red Dead Redemption - playing
+11. Chibi Robo Zip Patrol - playing
 
 -------------------
 
-## Write movies/games critics ()
+## Write movies/games critics (2)
 1. http://playerselect.com.br/critica-a-bela-e-a-fera/
-2.
+2. http://playerselect.com.br/critica-sing/
+3.
 
 -------------------
 
