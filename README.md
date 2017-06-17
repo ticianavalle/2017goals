@@ -61,7 +61,8 @@
 1. http://playerselect.com.br/critica-a-bela-e-a-fera/
 2. http://playerselect.com.br/critica-sing/
 3. http://playerselect.com.br/critica-yes-or-no/
-4.
+4. http://playerselect.com.br/critica-wonder-woman/
+5. http://playerselect.com.br/a-cabana/
 
 -------------------
 
