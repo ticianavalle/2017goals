@@ -65,6 +65,7 @@
 9. Alan Wake - finished
 10. Red Dead Redemption - playing
 11. Chibi Robo Zip Patrol - playing
+12. Quantum Break - finished
 
 -------------------
 
