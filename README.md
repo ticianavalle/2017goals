@@ -80,7 +80,7 @@
 
 ## Watch all Oscar 2017 nominees (6/9)
 1. A Chegada - OK
-2. Até o Último Homem
+2. Até o Último Homem - OK
 3. Estrelas Além do Tempo - OK
 4. Lion: Uma Jornada para Casa - OK
 5. Moonlight: Sob a Luz do Luar - OK
