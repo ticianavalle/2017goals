@@ -2,7 +2,7 @@
 
 ## Create my portfolio
 
-## Read 24 books (17/24)
+## Read 24 books (18/24)
 1. Casual Vacancy by JK Rowling - OK
 2. The Restaurant at the End of the Universe by Douglas Adams - OK
 3. Game Start by Thais Weiller - reading
@@ -23,7 +23,8 @@
 18. Royally Yours - Everly James - OK
 19. Seeing Her - Maria Jackson - OK
 20. A Woman ignored - T.B. Markinson - reading
-21. Leap of Faith - Everly James - reading
+21. Leap of Faith - Everly James - OK
+22. Heartbeat - Everly James - reading
 
 
 -------------------
