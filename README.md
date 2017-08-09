@@ -14,6 +14,17 @@
 9. Feast of Crows by George RR Martin - reading
 10. Eve by William P. Young - OK
 11. So long and thanks for all the fish! by Douglas Adams - reading
+12. Magic and Romance - Niamh Murphy - OK
+13. SunKissed - Emma Rose Millar - OK
+14. Gretel: A Fairytale Retold - Niamh Murphy - OK
+15. Mask of the Highwaywoman - Niamh Murphy - OK
+16. Escape to Pirate Island - Niamh Murphy - OK
+17. A Woman Lost - T.B. Markinson - OK
+18. Royally Yours - Everly James - OK
+19. Seeing Her - Maria Jackson - OK
+20. A Woman ignored - T.B. Markinson - reading
+21. Leap of Faith - Everly James - reading
+
 
 -------------------
 
