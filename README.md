@@ -24,7 +24,9 @@
 19. Seeing Her - Maria Jackson - OK
 20. A Woman ignored - T.B. Markinson - reading
 21. Leap of Faith - Everly James - OK
-22. Heartbeat - Everly James - reading
+22. Heartbeat - Everly James - OK
+23. Reunited - H.L. Logan - OK
+24. State of Grace - Everly James - reading
 
 
 -------------------
