@@ -26,7 +26,10 @@
 21. Leap of Faith - Everly James - OK
 22. Heartbeat - Everly James - OK
 23. Reunited - H.L. Logan - OK
-24. State of Grace - Everly James - reading
+24. State of Grace - Everly James - OK
+25. Rhythm - H.L. Logan - OK
+26. Broken Record - Edie Bryant - OK
+27. 
 
 
 -------------------
