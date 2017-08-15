@@ -2,7 +2,7 @@
 
 ## Create my portfolio
 
-## Read 24 books (18/24)
+## Read 24 books (23/24)
 1. Casual Vacancy by JK Rowling - OK
 2. The Restaurant at the End of the Universe by Douglas Adams - OK
 3. Game Start by Thais Weiller - reading
@@ -29,7 +29,8 @@
 24. State of Grace - Everly James - OK
 25. Rhythm - H.L. Logan - OK
 26. Broken Record - Edie Bryant - OK
-27. 
+27. Half Baked - Edie Bryant - OK
+28.
 
 
 -------------------
