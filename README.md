@@ -2,7 +2,7 @@
 
 ## Create my portfolio
 
-## Read 24 books (23/24)
+## Read 24 books (26/24)
 1. Casual Vacancy by JK Rowling - OK
 2. The Restaurant at the End of the Universe by Douglas Adams - OK
 3. Game Start by Thais Weiller - reading
@@ -30,7 +30,10 @@
 25. Rhythm - H.L. Logan - OK
 26. Broken Record - Edie Bryant - OK
 27. Half Baked - Edie Bryant - OK
-28.
+28. Cheer: A Lesbian Romance - Mia Archer - OK
+29. Something About You - Jea Hawkins - OK
+30. A Vote for Love - Jea Hawkins - OK
+31. Must love chickens - Jea Hawkins - reading
 
 
 -------------------
