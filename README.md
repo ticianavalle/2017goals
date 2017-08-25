@@ -2,7 +2,7 @@
 
 ## Create my portfolio
 
-## Read 24 books (29/24)
+## Read 24 books (31/24)
 1. Casual Vacancy by JK Rowling - OK
 2. The Restaurant at the End of the Universe by Douglas Adams - OK
 3. Game Start by Thais Weiller - reading
@@ -37,7 +37,8 @@
 32. Game of Hearts - Jea Hawkins - OK
 33. Switchback - S.W. Anderson - OK
 34. Princess Charming - Mia Archer - OK
-35. The Intern - Mia Archer - reading
+35. The Intern - Mia Archer - OK
+36. Second Chances - Mia Archer - reading
 
 
 
