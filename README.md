@@ -38,7 +38,10 @@
 33. Switchback - S.W. Anderson - OK
 34. Princess Charming - Mia Archer - OK
 35. The Intern - Mia Archer - OK
-36. Second Chances - Mia Archer - reading
+36. Second Chances - Mia Archer - OK
+37. Starstruck - H.L. Logan -   OK
+38. Deauty and the banda geek - Mia Archer - reading
+39. Girl on Geek - Mia Archer
 
 
 
