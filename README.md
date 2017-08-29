@@ -90,7 +90,7 @@
 
 -------------------
 
-## Write movies/games critics (2)
+## Write movies/games critics (5)
 1. http://playerselect.com.br/critica-a-bela-e-a-fera/
 2. http://playerselect.com.br/critica-sing/
 3. http://playerselect.com.br/critica-yes-or-no/
