@@ -2,7 +2,7 @@
 
 ## Create my portfolio
 
-## Read 24 books (37/24)
+## Read 24 books (36/24)
 1. Casual Vacancy by JK Rowling - OK
 2. The Restaurant at the End of the Universe by Douglas Adams - OK
 3. Game Start by Thais Weiller - reading
@@ -40,11 +40,10 @@
 35. The Intern - Mia Archer - OK
 36. Second Chances - Mia Archer - OK
 37. Starstruck - H.L. Logan -   OK
-38. Deauty and the banda geek - Mia Archer - reading
+38. Beauty and the Band Geek - Mia Archer - OK
 39. Girl on Geek - Mia Archer
 40. Good Girl, Bad Girl - Mia Archer - OK
-41. Beauty and the Band Geek - Mia Archer - OK
-42. Just Friends - Mia Archer - OK
+41. Just Friends - Mia Archer - reading
 
 
 
