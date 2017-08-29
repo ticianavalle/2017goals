@@ -42,6 +42,9 @@
 37. Starstruck - H.L. Logan -   OK
 38. Deauty and the banda geek - Mia Archer - reading
 39. Girl on Geek - Mia Archer
+40. Good Girl, Bad Girl - Mia Archer - OK
+41. Beauty and the Band Geek - Mia Archer - OK
+42. Just Friends - Mia Archer - OK
 
 
 
