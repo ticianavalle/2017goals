@@ -99,7 +99,7 @@
 
 -------------------
 
-## Watch all Oscar 2017 nominees (6/9)
+## Watch all Oscar 2017 nominees (7/9)
 1. A Chegada - OK
 2. Até o Último Homem - OK
 3. Estrelas Além do Tempo - OK
