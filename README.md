@@ -43,7 +43,9 @@
 38. Beauty and the Band Geek - Mia Archer - OK
 39. Girl on Geek - Mia Archer
 40. Good Girl, Bad Girl - Mia Archer - OK
-41. Just Friends - Mia Archer - reading
+41. Just Friends - Mia Archer - OK
+42. Two Lovers - Edie Bryant - OK
+43. 
 
 
 
