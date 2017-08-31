@@ -2,7 +2,7 @@
 
 ## Create my portfolio
 
-## Read 24 books (36/24)
+## Read 24 books (40/24)
 1. Casual Vacancy by JK Rowling - OK
 2. The Restaurant at the End of the Universe by Douglas Adams - OK
 3. Game Start by Thais Weiller - reading
@@ -47,6 +47,7 @@
 42. Two Lovers - Edie Bryant - OK
 43. Exposure - Edie Bryant - OK
 44. Meant to be - Jea Hawkins - OK
+45. Steep Slope - Edie Bryant - reading
 
 
 
