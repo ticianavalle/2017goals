@@ -47,7 +47,8 @@
 42. Two Lovers - Edie Bryant - OK
 43. Exposure - Edie Bryant - OK
 44. Meant to be - Jea Hawkins - OK
-45. Steep Slope - Edie Bryant - reading
+45. Steep Slope - Edie Bryant - OK
+46. Love me Not - Edie Bryant
 
 
 
