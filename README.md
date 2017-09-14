@@ -41,7 +41,7 @@
 36. Second Chances - Mia Archer - OK
 37. Starstruck - H.L. Logan -   OK
 38. Beauty and the Band Geek - Mia Archer - OK
-39. Girl on Geek - Mia Archer
+39. Girl on Geek - Mia Archer - OK
 40. Good Girl, Bad Girl - Mia Archer - OK
 41. Just Friends - Mia Archer - OK
 42. Two Lovers - Edie Bryant - OK
