@@ -52,8 +52,8 @@
 47. The Trip - Edie Bryant - OK
 48. Life pushes you along - Emma Sterner-Radley - OK
 49. Chasing Love - Carol Wyatt - OK
-50. Lady in the lake - Andrzej Sapkowski
-51. A Garota no Gelo - Robert Bryndza
+50. Lady in the lake - Andrzej Sapkowski - reading
+51. A Garota no Gelo - Robert Bryndza - OK
 
 
 
