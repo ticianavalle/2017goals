@@ -87,7 +87,7 @@
 
 -------------------
 
-## Other Games (4)
+## Other Games (6)
 1. Assassin's Creed - finished
 2. Dear Esther - finished
 3. Unravel - playing
@@ -100,15 +100,18 @@
 10. Red Dead Redemption - playing
 11. Chibi Robo Zip Patrol - playing
 12. Quantum Break - finished
+13. Abzû - finished
 
 -------------------
 
-## Write movies/games critics (5)
+## Write movies/games critics (7)
 1. http://playerselect.com.br/critica-a-bela-e-a-fera/
 2. http://playerselect.com.br/critica-sing/
 3. http://playerselect.com.br/critica-yes-or-no/
 4. http://playerselect.com.br/critica-wonder-woman/
 5. http://playerselect.com.br/a-cabana/
+6. http://culturanerdegeek.com.br/life-is-strange-resenha/
+7. http://culturanerdegeek.com.br/assassins-creed-resenha/
 
 -------------------
 
