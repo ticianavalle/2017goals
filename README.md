@@ -2,7 +2,7 @@
 
 ## Create my portfolio
 
-## Read 24 books (49/24)
+## Read 24 books (50/24)
 1. Casual Vacancy by JK Rowling - OK
 2. The Restaurant at the End of the Universe by Douglas Adams - OK
 3. Game Start by Thais Weiller - reading
@@ -56,7 +56,7 @@
 51. A Garota no Gelo - Robert Bryndza - OK
 52. Blossom - Edie Bryant - OK
 53. Remember Me - Bryce Taylor - OK
-54. Origin - Dan Brown - reading
+54. Origin - Dan Brown - OK
 
 
 
