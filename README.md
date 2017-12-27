@@ -87,7 +87,7 @@
 
 -------------------
 
-## Other Games (6)
+## Other Games (7)
 1. Assassin's Creed - finished
 2. Dear Esther - finished
 3. Unravel - playing
@@ -101,6 +101,7 @@
 11. Chibi Robo Zip Patrol - playing
 12. Quantum Break - finished
 13. Abzû - finished
+14. Bayonetta - finished
 
 -------------------
 
